@@ -1,1 +1,1 @@
-# lexika
+# LEXIKA AI
